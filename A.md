@@ -5,9 +5,9 @@
 
 - Aida – prosperous, happy  
 
-Aik – dawn, daybreak, morning 
+- Aik – dawn, daybreak, morning 
 
-Aiki – vineyard  
+- Aiki – vineyard  
 
 Aghavni – dove 
 
