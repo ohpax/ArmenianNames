@@ -1,5 +1,7 @@
-Baydsar/Baidzar – bright 
 
-Barig/Parig – fairy  
+#B
+- Baydsar/Baidzar – bright 
 
-Berjouhie/ Berj – superb, abundant, luxurious  
+- Barig/Parig – fairy  
+
+- Berjouhie/ Berj – superb, abundant, luxurious  
