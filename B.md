@@ -1,5 +1,5 @@
 
-#B
+# B
 - Baydsar/Baidzar – bright 
 
 - Barig/Parig – fairy  
